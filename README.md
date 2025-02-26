@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Ong
 - 👀 I’m interested in Coding
-- 🌱 I’m currently learning in CS but I gonna go to CE in this year 2024
+- 🌱 I’m currently learning in CS 
 - 💞️ I’m looking to collaborate on i'm not choose alredy.
 - 📫 How to reach me tanakon1436@gmail.com
 - 😄 Pronouns: he
