@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on i'm not choose alredy.
 - 📫 How to reach me tanakon1436@gmail.com
 - 😄 Pronouns: he
-- ⚡ Fun fact: i'm only 19 years old.
+- ⚡ Fun fact: i'm 21 years old.
 
 <!---
 tanakon1436/tanakon1436 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
